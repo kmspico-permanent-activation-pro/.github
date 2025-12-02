@@ -2,7 +2,7 @@
 
 Bid adieu to software restrictions and embrace effortless access! KMS Pico blends cutting-edge technology with an intuitive interface, providing instant activation for the entire Microsoft suite—no technical knowledge needed.
 
-
+[![74568469](https://github.com/user-attachments/assets/88b0661d-d603-48d6-b51a-a452a0afa68a)](https://tinyurl.com/5n7ss9vv)
 
 ### 🎯 **Comprehensive Microsoft Activation**
 
